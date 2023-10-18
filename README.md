@@ -1,0 +1,4 @@
+- 👋 Olá, sou Reinansx 🎰💸
+- 👀 Estou interessado em - Criação de Bots
+- 🌱 Atualmente estou aprendendo - Js, Php, Html, React, Node.js, C++
+- 📫 Como entrar em contato comigo - wa.me//5519993249965
